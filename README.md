@@ -1,13 +1,33 @@
-我是徐木头，谁敢惹我！！
-![20161022_192926_mh1477151290097](https://user-images.githubusercontent.com/29617372/27437404-b5858ac4-5794-11e7-9f46-d5a20134c388.jpg)
-![20161022_192934_mh1477151197972](https://user-images.githubusercontent.com/29617372/27437413-bf48983a-5794-11e7-88db-15346cacdac2.jpg)
-![20170216_151348](https://user-images.githubusercontent.com/29617372/27437415-bf586bfc-5794-11e7-85ff-b19081cce783.jpg)
-![20170430_184457](https://user-images.githubusercontent.com/29617372/27437414-bf5749fc-5794-11e7-8dd5-8c3785552e64.jpg)
-![20170430_184459](https://user-images.githubusercontent.com/29617372/27437417-bf6a9a3e-5794-11e7-8a5b-a28cd98d0b62.jpg)
-![60691054](https://user-images.githubusercontent.com/29617372/27437418-bf6d4a04-5794-11e7-9c08-5438516b6f90.jpeg)
-![1192620630](https://user-images.githubusercontent.com/29617372/27437416-bf6aaa06-5794-11e7-9af0-7b964ad57a27.jpeg)
-![mmexport1479547870851](https://user-images.githubusercontent.com/29617372/27437445-cf247bf2-5794-11e7-8022-ba1ef94012b9.jpg)
-![mmexport1481617521186](https://user-images.githubusercontent.com/29617372/27437446-cf338e80-5794-11e7-8a86-83caeee5222f.jpg)
-![mmexport1481617536035](https://user-images.githubusercontent.com/29617372/27437443-cf1d3f54-5794-11e7-9a19-7c2077a47448.jpg)
-![mmexport1487432323122](https://user-images.githubusercontent.com/29617372/27437442-cf1c7ce0-5794-11e7-88f0-027e0943914d.jpg)
-![mmexport1497020381993](https://user-images.githubusercontent.com/29617372/27437444-cf2185b4-5794-11e7-821f-f8712a127443.jpg)
+购买新车贷款     七成（1-3年月息0.85）
+ 
+购买二手车贷款   七成（1-3年月息0.5）
+ 
+全额车贷款         0.85
+
+按揭车贷款         1.5-2.0
+
+抵押车贷款         2.5-3.5
+（白户月息1.6，黑户月息2.0，资料准备齐全当天放款）
+ 
+全款车辆抵押贷款（1-6月押车押证0.6，一万仅需60）
+ 
+二手车求购交易 
+ 
+代办房款和信用卡
+ 
+信用卡还款，不需要求助别人。
+ 
+全省车
+【不限户籍】【不电申，不外访】【不用工作证明】【公检法车辆可做】【刚解压可做】
+
+想要贷款的朋友可以来找我们，我们会尽心帮助你。
+地址：陵水县花园路86号
+公司：陵水东腾车友汇
+热线电话：089832128306     陵水人自己的金融，你身边的金融！！
+
+                       欢迎各位朋友前来了解
+
+![3](https://user-images.githubusercontent.com/29617372/27505252-b14ed75a-58cd-11e7-9822-2c4a96442926.jpg)
+![1](https://user-images.githubusercontent.com/29617372/27505251-b10a3348-58cd-11e7-9826-4c198fc8fedf.jpg)
+![2](https://user-images.githubusercontent.com/29617372/27505250-b109a37e-58cd-11e7-8370-9eded571514f.jpg)
+![1](https://user-images.githubusercontent.com/29617372/27514144-4f093b70-59b4-11e7-904c-7fdfb0aeb7a9.jpg)
